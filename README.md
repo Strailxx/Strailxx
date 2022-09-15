@@ -1,6 +1,6 @@
 Hey There!
 
-I'm Strailxx also known as Jarod, I am in my second year of university at Dalhousie studying Computer Science
+I'm Strailxx also known as Jarod, I am in my thirdyear of university at Dalhousie studying Computer Science
 
 I have only been coding for 2-3 years now but I have been interested in it as long as I could remember! I am a huge gamer and I feel as if that was my main inspiration to get into coding. I still play plenty of games to this day and hope to make one myself one day as a side project.
 
